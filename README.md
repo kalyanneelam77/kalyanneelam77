@@ -16,7 +16,7 @@
 
  📫 How to reach me:
 - [LinkedIn](https://www.linkedin.com/in/tirumala-venkata-kalyan-neelam-1287b0231/)
-- Email: kalyanneelam@example.com
+- Email: kalyanneelam77@example.com
 
  😄 Pronouns:
 - He/Him

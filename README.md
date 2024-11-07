@@ -1,4 +1,4 @@
- 👋 Hi, I’m @kalyanneelam77
+ 👋 Hi, I’m Neelam Tirumala Venkata Kalyan
 
  👀 I’m interested in:
 - Full-stack development
